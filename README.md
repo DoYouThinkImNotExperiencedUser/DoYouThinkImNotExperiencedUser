@@ -9,3 +9,5 @@ So if you're looking for me or want to contact me. Just DM me on any social medi
 Doxxing is cringe if its motive behind it is hurting innocent people or witch hunting someone.
 Doxxing pedos is fair but in some cases, you can just blackmail the pedo into exposing other pedos and blackmailing them too to do same thing.
 It might sound easy to be done, but it doesn't seem like it until proven otherwise. Contact me if you know any "Unexposed pedos" so we can do this funny litle thing.
+
+**Contact Email:** PeopleAreDyingWeAreSurviving@keemail.me
