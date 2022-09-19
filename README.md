@@ -11,3 +11,8 @@ Doxxing pedos is fair but in some cases, you can just blackmail the pedo into ex
 It might sound easy to be done, but it doesn't seem like it until proven otherwise. Contact me if you know any "Unexposed pedos" so we can do this funny litle thing.
 
 **Contact Email:** PeopleAreDyingWeAreSurviving@keemail.me
+
+Also these cringe doxxers that dox people just because they're furries.
+Likes this one.
+![image](https://user-images.githubusercontent.com/113719320/191098125-a925db29-de65-46de-af7b-15d448f786c8.png)
+Are just no-lifers 24/7 that just need attention.
