@@ -1,4 +1,4 @@
-Hello, I’m @DoYouThinkImNotExperiencedUser
+Hello, I’m @DoYouThinkImNotExperiencedUser, call me 4not3 or FourNotThree.
 
 As seen from my username, this is just my alt account, or maybe it will become my main one day.
 Its secret what my main account is. With the power of OSINT tools you might be actually be able to find my main, however i don't even want this to happen.
